@@ -1,1 +1,1 @@
-Some random dude who learns Python and plans to learn C++ ._.
+idk what to write here
